@@ -1,0 +1,1 @@
+# Multi_factor_equity_NYSE
